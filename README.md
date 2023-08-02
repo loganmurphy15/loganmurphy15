@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @loganmurphy
+- 👋 Hi, I’m logan Murphy
